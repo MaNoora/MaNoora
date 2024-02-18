@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MaNoora
+- 👀 I’m interested in product management and business development 
+- 🌱 I’m currently learning python
+- 📫 How to reach me: Telegram: @NooraWanders
+- 😄 Pronouns: she/her
